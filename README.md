@@ -29,9 +29,13 @@ The Series
 Requiem of Echoes is planned as five books, each shaped by a mythological descent:
 
 Echoes of a Shattered Moon — Eldorann's first arc (complete)
+
 Echoes of Mortality — Inanna's descent (in production)
+
 Echoes of Conflict — Persephone
+
 Echoes of Peace — Orpheus
+
 Echoes of Being — Osiris
 
 Soundtrack
