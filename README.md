@@ -39,6 +39,10 @@ Echoes of Peace — Orpheus
 Echoes of Being — Osiris
 
 Soundtrack
+
+Witnessed - Summary of entire book one
+https://suno.com/song/74a14a22-acd1-4ab1-856d-fdc2f15b4d8d
+
 A chapter-by-chapter album in the style of Amy Lee and Evanescence is being produced through Suno. Songs are linked from their corresponding chapter author's notes on Royal Road.
 
 About the Author
